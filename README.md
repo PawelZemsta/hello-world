@@ -1,3 +1,4 @@
 # hello-world
-oje pierwsze reozytorium
+oje pierwsze reozytoriumbtyrtvr
+takie tame
 
